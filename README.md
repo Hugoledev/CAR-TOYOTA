@@ -8,10 +8,4 @@ start ToyotaSupra
 
 by hugo 
 contacte discord TurboHUUgo#5854 
-prochainement sur youtube 
-
-https://discord.gg/zaTrmch
-https://discord.gg/zaTrmch
-https://discord.gg/zaTrmch
-https://discord.gg/zaTrmch
-( serveur entre aide , nouveau alors bonbarder moi ca ) 
+prochainemen sur YouTube 
